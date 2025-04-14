@@ -1,4 +1,4 @@
-<h1> <p align="center">♡ ⊹˚₊ ㅤthrough patches of violetㅤ₊˚⊹ ♡ </p> </h1>
+<h1> <p align="center">♡ ⊹˚₊ even if you are forgotten to this world.. ill get you back. ₊˚⊹ ♡ </p> </h1>
 <br /> <br />
   <p align="center">
 <img src="https://i.ibb.co/Vcv11YpM/Untitled62-20250412182110.png"/>
